@@ -1,8 +1,7 @@
 ![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=420&size=25&pause=1000&color=E00CFF&background=FF428C00&width=435&lines=Welcome+to+my+profile+honey%3C3)
 -------------------------------------------------------------
 
-![freecompress-Bocchi-the-Blade-Runner-_online-video-cutter com__compressed](https://github.com/user-attachments/assets/6b41a73b-52e4-49d3-85c5-1f34ed0012bc)
-
+![bob gif](https://github.com/user-attachments/assets/5e9a57f2-46ad-4448-8a97-fc62d22c9f10)
 
 
 
